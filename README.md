@@ -4,4 +4,6 @@ The following [predictions](https://www.youtube.com/watch?v=lSPNQ82Sq4E) are the
 
 In 2024:
 
-  + SCOTUS rules that the use leaf blowers -- regardless of noise level or context -- is [protected speech](https://www.youtube.com/watch?v=V2f-MZ2HRHQ).
+  + U.S. Supreme Court rules that the use leaf blowers -- regardless of noise level or context -- is [protected speech](https://www.youtube.com/watch?v=V2f-MZ2HRHQ).
+  + Movies about Paul Bunyan and John Henry set box office and streaming records.
+  + [Bajirao Singham](https://twitter.com/ajaydevgn) joins Expendables 4 cast.
