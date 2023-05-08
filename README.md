@@ -7,7 +7,7 @@ In 2024:
   + U.S. Supreme Court rules that the use leaf blowers -- regardless of noise level or context -- is [protected speech](https://www.youtube.com/watch?v=V2f-MZ2HRHQ).
   + U.S. Supreme Court rules that forcing the expense of "school transportation" is ***unconstitutional.***
   + Movies about Paul Bunyan and John Henry set box office and streaming records.
-  + [Bajirao Singham](https://twitter.com/ajaydevgn) joins Expendables 4 cast.
+  + [Ajay Devgn](https://twitter.com/ajaydevgn) joins Expendables 4 cast.
   + U.S. Congress and state legislatures revoke many college and university accreditations.
   + State legislatures abolish several unified school districts.
   + State legislatures add private schools to education finance mandates.
