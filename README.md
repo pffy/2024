@@ -12,3 +12,4 @@ In 2024:
   + State legislatures abolish several unified school districts.
   + State legislatures add private schools to education finance mandates.
   + Arizona State University is required by law to change mascot from the sun devil to the sun angel.
+  + [Dragnet](https://www.youtube.com/watch?v=Hj-qhIGTXdU) reboot.
