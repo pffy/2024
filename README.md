@@ -4,7 +4,7 @@ The following [predictions](https://www.youtube.com/watch?v=lSPNQ82Sq4E) are the
 
 In 2024:
 
-  + U.S. Supreme Court rules that the use leaf blowers -- regardless of noise level or context -- is [protected speech](https://www.youtube.com/watch?v=V2f-MZ2HRHQ).
+  + U.S. Supreme Court (SCOTUS) rules that the use leaf blowers -- regardless of noise level or context -- is [protected speech](https://www.youtube.com/watch?v=V2f-MZ2HRHQ).
   + U.S. Supreme Court rules that forcing the expense of "school transportation" is ***unconstitutional.***
   + Movies about Paul Bunyan, John Henry, or similar legends break both box office and streaming records. 
   + [Ajay Devgn](https://twitter.com/ajaydevgn) joins Expendables 5 cast.
@@ -15,4 +15,3 @@ In 2024:
   + [Dragnet](https://www.youtube.com/watch?v=Hj-qhIGTXdU) reboot.
   + Chris Hemsworth pitches [Gevalia coffee](https://www.youtube.com/watch?v=UmgPsiUvfq8) as Thor.
   + Some U.S. states close their borders to interstate traffic.
-  + 
