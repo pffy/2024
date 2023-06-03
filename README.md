@@ -13,7 +13,7 @@ In 2024:
   + U.S. Congress and state legislatures revoke many college and university accreditations.
   + State legislatures abolish several unified school districts.
   + State legislatures add private schools to education finance mandates.
-  + Arizona State University is required by law to change mascot from the sun devil to the sun angel.
+  + Arizona State University is required by newly-passed state law to change mascot from the sun devil to the sun angel.
   + [Dragnet](https://www.youtube.com/watch?v=Hj-qhIGTXdU) reboot.
-  + Chris Hemsworth pitches [Gevalia coffee](https://www.youtube.com/watch?v=UmgPsiUvfq8) as Thor.
+  + [Chris Hemsworth](https://twitter.com/chrishemsworth) pitches [Gevalia coffee](https://www.youtube.com/watch?v=UmgPsiUvfq8) as Thor.
   + Some U.S. states close their borders to interstate traffic.
