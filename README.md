@@ -4,6 +4,7 @@ The following [predictions](https://www.youtube.com/watch?v=lSPNQ82Sq4E) are the
 
 In 2024:
   
+  * UPS buys FedEx.
   * [Evangeline Lilly](https://twitter.com/evangelinelilly) is cast as AEon Flux
   * [Caroline Catz](https://twitter.com/catzcaroline) is cast as Princess Leia -- with a lightsaber.
   + U.S. Supreme Court (SCOTUS) rules that the use leaf blowers -- regardless of noise level or context -- is [protected speech](https://www.youtube.com/watch?v=V2f-MZ2HRHQ).
